@@ -19,4 +19,4 @@ I am a **Data Analyst** dedicated to transforming complex healthcare datasets in
 
 ---
 📫 **Let's Connect:**
-*[[LinkedIn:Priyanka Saki Gajendran]](https://www.linkedin.com/in/priyankasgs/)
+*[[LinkedIn]](https://www.linkedin.com/in/priyankasgs/)
